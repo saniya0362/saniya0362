@@ -36,7 +36,7 @@ I'm a Junior Data Analyst passionate about transforming raw data into meaningful
 ---
 
 ## 📫 Let’s Connect
- LinkedIn- [here](https://www.linkedin.com/in/saniya-noori)
+ [LinkedIn](https://www.linkedin.com/in/saniya-noori)
 
 
 ---
